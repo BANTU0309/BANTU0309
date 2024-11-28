@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BANTU0309
+- 👋 Hi, I’m @SRIHARI
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning HTML&CSS
 - 📫 How to reach me on instagram ig_bantu_
